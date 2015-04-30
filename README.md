@@ -25,6 +25,8 @@ Mexican
 
 * La Fruta de Feliz - My favorite for breakfast after a big night,  a great select of fresh made hangover curing juices and some great Mexican comfort food.  I highly recommend the chilaquiles ( green sauce ) with a couple of breakfast tacos.  The Tripas ( fried stomach lining ) Taco is my favorite, but its not for everyone.  They also make a great Menudo ( tripe soup ) and also have some good goat options.
 
+* Tamale House Eat - Excellent breakfast and lunch.
+
 Tex-Mex
 -------
 
