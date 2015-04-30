@@ -18,6 +18,8 @@ Texas barbecue is all about the brisket.  The best way to eat it is to order 'Mo
 
 * Freedman's - great high end BBQ, good whiskey selection.
 
+* Snow's - if you're here on saturday, might be worth the 2 hour drive out there.  It's only open Saturday from early until sold out.  
+
 Mexican
 -------
 
