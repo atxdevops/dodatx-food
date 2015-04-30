@@ -34,6 +34,8 @@ Tex-Mex
 
 * Chuy's is a local chain that IPO'd and now has restaurants all over the country.   It's the Rudy's of texmex.  Good cheap food.
 
+* Trudy's is the main competitor to Chuy's. It's food is ok, but they are famous for their Mexican Martini's. Ask for it without the glass only in the shaker. They used to cap you at two, but not anymore!
+
 * Taco Deli - hipster tacos that actually taste great.   don't go at peak meal times unless you want to wait 30mins in line.
 
 * Torchy's Tacos - agains, some great tasting pseudo-hipster tacos.  They have some great standard options as well as monthly specials... you just missed the Roscoe ( chicken and waffles taco )
