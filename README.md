@@ -71,6 +71,8 @@ Beer
 
 * gourdough's public house - Great Pub with amazing beers and ridiculous donuts.
 
+* [draughthouse](http://draughthouse.com) - too many taps to list, homebrew beers, and always has a foodtruck outside.
+
 Comfort Food
 ------------
 
