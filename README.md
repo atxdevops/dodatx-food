@@ -95,7 +95,7 @@ anything not japanese is getting lumped together here ... sorry.
 
 * Rice Bowl Cafe - a little north but great Taiwanese food. 3cup chicken is great here, A few doors up is Snowmonster which is a great Taiwanese shaved ice for dessert
 
-* Kin and Komfort - also a little north, amazing fusion of Thai and Southern food out of a foodcourt. Cash only. Try the grandmothers deviled eggs and the beef tongue salad.
+* Kin and Comfort - also a little north, amazing fusion of Thai and Southern food out of a food court. Cash only. Try the grandmothers deviled eggs and the beef tongue salad.
 
 MEAT!!!!
 --------
@@ -105,8 +105,6 @@ MEAT!!!!
 * Salt and Time - Similar to Dai Due, some great beers and great meat. good sandwiches for lunch and a great selection of house made charcuterie. Their Butcher's burger is killer.
 
 * Salty Sow - pig related, nose to tail sensibilities.
-
-* Bacon - Yes, its really called Bacon. Do I really need to say anything else ?
 
 The Good stuff
 --------------
