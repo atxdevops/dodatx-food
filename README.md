@@ -3,6 +3,19 @@ Food and Drinks near DOD ATX
 
 So if you're in Austin for a few days for DevOps Days ATX and want some tips on where to eat... I'm not posting locations or hours or anything, you've got a google. Be aware though a lot of places are closed on mondays.
 
+* [Barbecue](#barbecue)
+* [Mexican](#mexican)
+* [Tex\-Mex](#tex-mex)
+* [Japanese / Sushi](#japanese--sushi)
+* [Beer](#beer)
+* [Comfort Food](#comfort-food)
+* [Asian](#asian)
+* [MEAT\!\!\!\!](#meat)
+* [The Good stuff](#the-good-stuff)
+* [Burgers](#burgers)
+
+Created by [gh-md-toc](https://github.com/ekalinin/github-markdown-toc.go)
+
 Barbecue
 --------
 
