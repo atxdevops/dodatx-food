@@ -49,11 +49,11 @@ Austin has a surprisingly good selection of Japanese/Sushi restaurants. Here's C
 
 * Hanabi - also close to the venue, the best sushi within a few miles.
 
-* Uchi/Uchiko - Uchiko is farily close, Uchi is a fair hike. Uchi is more traditional sushi where uchiko is more japanese farm house food. Both are in the top 5 restaurants in austin and have killer desserts and hipster friendly brussels sprouts.
+* Uchi/Uchiko - Uchiko is fairly close, Uchi is a fair hike. Uchi is more traditional sushi where Uchiko is more japanese farm house food. Both are in the top 5 restaurants in austin and have killer desserts and hipster friendly brussels sprouts.
 
-* Soto - If you find yourself in the far north this place great, almost as good as uchi/uchiko. They have Fois Gras Sashimi, enough said.
+* Soto - If you find yourself in the far north this place great, almost as good as Uchi/Uchiko. They have Fois Gras Sashimi, enough said.
 
-* Michi Ramen - Great Ramen for lunch, if dinner go to tatsu-ya
+* Michi Ramen - Great Ramen for lunch, if dinner go to Tatsu-ya
 
 * Ramen Tatsu-ya - Great Ramen for dinner, if lunch go to Michi
 
@@ -79,6 +79,8 @@ Comfort Food
 * Hoovers - pretty good southern comfort food. 
 
 * Catfish Parlour - if you're into fried bottom feeders
+
+* Haymaker - more modern than Hoover's ( they've got Poutine and the Impossible burger ) but still comfort food.
 
 Asian
 -----
