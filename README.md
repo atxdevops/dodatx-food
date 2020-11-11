@@ -12,7 +12,7 @@ Texas barbecue is all about the brisket.  The best way to eat it is to order 'Mo
 
 * Franklin BBQ - Arguably the best Texas style BBQ in the world.  but is it worth a 4-5 hour wait ?  Let us know if you brave the lines.
 
-* Stiles Switch - Pretty good barbecue here,  fairly close to the Marchesa so definitely worth a mention.
+* Stiles Switch - Pretty good barbecue here, definitely worth a mention.
 
 * LA BBQ - Great BBQ,  almost as good as Franklin,  no 4 hour lines.
 
