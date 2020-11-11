@@ -100,7 +100,7 @@ anything not japanese is getting lumped together here ... sorry.
 MEAT!!!!
 --------
 
-* Dai Due - A great new restaurant and butchershop in Austin. Can't recommend it highly enough.
+* Dai Due - A great restaurant and butchershop in Austin. Can't recommend it highly enough.
 
 * Salt and Time - Similar to Dai Due, some great beers and great meat. good sandwiches for lunch and a great selection of house made charcuterie. Their Butcher's burger is killer.
 
