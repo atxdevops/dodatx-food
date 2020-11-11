@@ -16,6 +16,8 @@ Texas barbecue is all about the brisket.  The best way to eat it is to order 'Mo
 
 * LA BBQ - Great BBQ,  almost as good as Franklin,  no 4 hour lines.
 
+* Kerlin BBQ - Great BBQ, good bread, crunchy pickles.
+
 * Snow's - if you're here on saturday, might be worth the 2 hour drive out there.  It's only open Saturday from early until sold out.  
 
 Mexican
