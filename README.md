@@ -76,11 +76,7 @@ Beer
 Comfort Food
 ------------
 
-* Southerns @ PBK - not only are they catering lunch but they have a great location in far north austin ( technically pflugerville ). try house made tater tots and the root beer and whiskey float.
-
 * Hoovers - pretty good southern comfort food. 
-
-* Threadgills - like hoovers
 
 * Catfish Parlour - if you're into fried bottom feeders
 
