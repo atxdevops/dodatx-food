@@ -87,11 +87,15 @@ anything not japanese is getting lumped together here ... sorry.
 
 * Baguette House - great Vietnamese Bahn Mi, this is in a cluster of asian restaurants and stores so well worth checking out what else is nearby.
 
-* Tahn My - Solid Pho not far from the venue
+* Tahn My - Solid Pho
 
 * Rice Bowl Cafe - a little north but great Taiwanese food. 3cup chicken is great here, A few doors up is Snowmonster which is a great Taiwanese shaved ice for dessert
 
 * Kin and Comfort - also a little north, amazing fusion of Thai and Southern food out of a food court. Cash only. Try the grandmothers deviled eggs and the beef tongue salad.
+
+* Seoulju - The Real KFC, Korean Fried Chicken! Try some of John's customized Soju drinks while you're at it.
+
+* Hi-Wings - more KFC and korean food, differently tasty to Seoulju.
 
 MEAT!!!!
 --------
