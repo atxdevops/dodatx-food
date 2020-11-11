@@ -25,7 +25,7 @@ Mexican
 
 * Taco More - Not far from the venue, has a great spicy goat soup and a solid salsa bar ( the onions covered in spicy red oil from the salsa bar are great ).
 
-* La Fruta de Feliz - My favorite for breakfast after a big night, a great select of fresh made hangover curing juices and some great Mexican comfort food. I highly recommend the chilaquiles ( green sauce ) with a couple of breakfast tacos. The Tripas ( fried stomach lining ) Taco is my favorite, but its not for everyone. They also make a great Menudo ( tripe soup ) and also have some good goat options.
+* La Fruta de Feliz - CZ's favorite for breakfast after a big night, a great select of fresh made hangover curing juices and some great Mexican comfort food. I highly recommend the chilaquiles ( green sauce ) with a couple of breakfast tacos. The Tripas ( fried stomach lining ) Taco is CZ's favorite, but its not for everyone. They also make a great Menudo ( tripe soup ) and also have some good goat options.
 
 * Tamale House East - Excellent breakfast and lunch.
 
@@ -43,7 +43,7 @@ Tex-Mex
 Japanese / Sushi
 ----------------
 
-Austin has a surprisingly good selection of Japanese/Sushi restaurants. Here's my picks:
+Austin has a surprisingly good selection of Japanese/Sushi restaurants. Here's CZ's picks:
 
 * Kome - right near the venue, not the best on the list, but very solid. Lots more than just sushi too.
 
@@ -111,7 +111,7 @@ The Good stuff
 
 * Barley Swine - Probably the best restaurant in Austin. It's usually busy and has communal tables. 
 
-* Foreign and Domestic - My favorite restaurant in ATX and pretty close to the venue. Dollar Oysters on tuesdays.
+* Foreign and Domestic - CZ's favorite restaurant in ATX. Dollar Oysters on tuesdays.
 
 * Odd Duck - same chef as Barley Swine, but I prefer BS.
 
